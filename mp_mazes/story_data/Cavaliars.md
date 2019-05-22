@@ -1,0 +1,1 @@
+Lebron stays in Cavaliars. This decision moves the entire city. They call Lebron the king of Cleveland. After years of struggle, the young people in Cavs finally become good enough to assist Lebr.on to fight in finals. Lebron earns the first championship for Cleveland and becomes a hero in his hometown

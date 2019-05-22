@@ -1,0 +1,1 @@
+Lebron decides not to recruit Ray Allen. Then Ray Allen joins Spurs and makes a last second three point shot in the final with Heat. Heat lost the championship. Lebron is very disappointed and decides to retire.
