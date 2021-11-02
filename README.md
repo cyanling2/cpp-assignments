@@ -1,1 +1,1 @@
-# my-code
+# C++ code
